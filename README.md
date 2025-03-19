@@ -1,1 +1,1 @@
-Privacy is not for the passive
+Privacy is not for the passive -Jeffrey Rosen
